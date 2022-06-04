@@ -29,3 +29,5 @@ I decided that I wouldn’t take this anymore. My parents' warnings were correct
 After I finally made it back home, I breathed in the fresh air. I was away from the stuffy rooms in the center. I took a look at the combine sitting in our fields and the one I made was almost perfect. 
 
 ## **END**
+
+[restart](story.md)

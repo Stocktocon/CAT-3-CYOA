@@ -1,0 +1,15 @@
+I decided to stick to something familiar and what seemed to be the most cost friendly option. I paid for my entry to the buffet and went ahead and grabbed my plate and started loading up. My plate was the physical embodiment of the United States of America as a collection of different food items. I blazed my way through the trail of food along my tray, from the cheeseburger, to the pizza, followed by mac and cheese, and ending with a hot fudge sundae. The sheer amount of food in my body left me feeling incapable of moving from my seat in the corner of the dining hall. With my current state, I decided to give my neural interface a trial run. From what I vaguely remember the registrar instructing, I was able to pull up the interface, and from there, it was almost like a videogame, where I was sitting at the main menu, waiting for the player to select an option. With little hesitation, I decided to jump right into it. I selected the most prominent options which then pulled me into what I can only imagine is Galacta’s online realm. Being pulled into this world was quite literally an out of body experience, my lethargic feelings from the meal I had were all put behind me, I was conscious but I had no feeling of my body. From an unknown location, I was instructed to create my own character. With no idea of how to do so, and no options or selections presented before me, I could only imagine myself, but with this personal perception of myself, a being was created before me, it was me. Curious, I decided to mess around with the avatar. Once I was finished with my avatar, I was thrown into what seemed to be a main hub, extremely reminiscent of New York City’s Time Square. 
+
+As I was looking around, my vision was interrupted, static as I was shaken back to reality. A man was standing before me, all my senses had returned.
+
+“You can’t use your neural interface in the cafeteria young man, if you get caught you’ll be kicked off the facility.”
+
+With that, the man was off, I had just read his nametag before he turned, Jordan Wardle. The name sounded familiar but I didn’t think too much of it as I made sure my neural interface was off, picked up my mess, and left the cafeteria.
+
+I spent another 20 minutes looking for any sign of the group I had entered with but had no luck. Disheartened, I decided to go back to the entrance where I had spoken to the registrar earlier. After a short conversation, she suggested that the best plan of action as of tonight was to put in an application for a janitorial position and if I was sure I wanted to get the job as a 3D modeling engineer for the company, I could work my way up. 
+
+Working my way up is what I planned to do. This is what my life had come to for now, I was working as a janitor for an amazing company, instead of a golden opportunity that was presented to me.
+
+## **END**
+
+[restart](story.md)

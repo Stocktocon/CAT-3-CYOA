@@ -21,5 +21,4 @@ do I:
 
 or
 
-
 [Wake up and boot into the metaverse](Section15.md)
